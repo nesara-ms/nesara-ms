@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently learning Agentic AI<br>Reach out to me at @nesarakushal@gmail.com
+I'm currently exploring AI<br>Reach out to me at @nesarakushal@gmail.com
 
 
 ## 🌐 Socials:
